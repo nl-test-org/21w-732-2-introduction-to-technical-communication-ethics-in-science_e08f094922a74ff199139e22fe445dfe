@@ -1,0 +1,1 @@
+# 21w-732-2-introduction-to-technical-communication-ethics-in-science_e08f094922a74ff199139e22fe445dfe
